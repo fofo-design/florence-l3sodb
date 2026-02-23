@@ -1,3 +1,5 @@
 GOOD MORNING TEACHER???????????
 
 WELCOME BACK TEACHER!!!!!!!!!!!!
+
+GOOD BY TEACHER WE LOVE YOU!!!!!!!!!
